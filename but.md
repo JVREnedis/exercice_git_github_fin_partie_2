@@ -1,0 +1,1 @@
+la réussite de cet exercice permet l'obtention du certificat concernant ce cours et me prouve que j'ai compris ce que j'apprends
